@@ -1,1 +1,1 @@
-# Atriteq
+# Artiteq
